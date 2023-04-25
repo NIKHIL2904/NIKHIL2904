@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nikhilbalotra84343@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15BdhNcCotkyLnsKcYvu6z67ZlczK3d1K/view?usp=sharing](https://drive.google.com/file/d/15BdhNcCotkyLnsKcYvu6z67ZlczK3d1K/view?usp=sharing)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **The first computer mouse was made of wood.**
 
